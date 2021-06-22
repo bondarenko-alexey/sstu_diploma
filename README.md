@@ -1,0 +1,1 @@
+# sstu_diploma
